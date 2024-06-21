@@ -1,3 +1,4 @@
+![Blue Pink Yellow Brown Illustration Animation Minimalist Youtube Intro](https://github.com/NajwaKurnia/NajwaKurnia/assets/153745958/43a39c55-9106-4b31-baf5-cd5563238503)
 
 ***
 <h1 align="center">Hi 👋, I'm Najwa Kurnia</h1>
